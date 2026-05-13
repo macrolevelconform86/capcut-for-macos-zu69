@@ -1,4 +1,4 @@
-# 
+# CapCut for macOS best Template: chromatic-aberration-fix & lower-thirds offers the most advanced CapCut for macOS template, with chromatic-aberration-fix and lower-thirds. Ideal
 
 
 
